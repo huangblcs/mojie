@@ -4,7 +4,7 @@
 
 永久官网：[魔戒.com](https://xuv.cc/out/mojie)
 
-地址1：[https://mojie.kim](https://mojie.kim/#/register?code=mWmfZf3V)
+地址1：[https://mojie.kim](https://mojie.host/#/register?code=mWmfZf3V)
 
 地址2：[https://mojie.co](https://mojie.co/#/register?code=mWmfZf3V)
 
