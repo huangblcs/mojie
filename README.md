@@ -4,13 +4,14 @@
 
 永久官网：[魔戒.com](https://xuv.cc/out/mojie)
 
-地址1：[https://mojie.kim](https://mojie.host/#/register?code=mWmfZf3V)
+地址1：[https://mojie.kim](https://mojie.app/#/register?code=mWmfZf3V)
 
 地址2：[https://mojie.co](https://mojie.co/#/register?code=mWmfZf3V)
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+[魔戒net-备用地址3](https://47.112.97.173:5000/#/register?code=mWmfZf3V)
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+[魔戒net-备用地址4](https://47.242.128.61:8000/#/register?code=mWmfZf3V)
+
 
 ## 魔戒特色简介
 
