@@ -4,13 +4,13 @@
 
 永久官网：[魔戒.com](https://xuv.cc/out/mojie)
 
-地址1：[https://mojie.kim](https://mojie.app/#/register?code=mWmfZf3V)
+地址1：[https://mojie.kim](https://mojie.app/#/register?code=Rn2CpM4a)
 
-地址2：[https://mojie.co](https://mojie.co/#/register?code=mWmfZf3V)
+地址2：[https://mojie.co](https://mojie.co/#/register?code=Rn2CpM4a)
 
-[魔戒net-备用地址3](https://47.112.97.173:5000/#/register?code=mWmfZf3V)
+[魔戒net-备用地址3](https://47.112.97.173:5000/#/register?code=Rn2CpM4a)
 
-[魔戒net-备用地址4](https://47.242.128.61:8000/#/register?code=mWmfZf3V)
+[魔戒net-备用地址4](https://47.242.128.61:8000/#/register?code=Rn2CpM4a)
 
 
 ## 魔戒特色简介
@@ -39,16 +39,7 @@
 
 ## 魔戒优惠码
 
-【优惠活动】魔戒net五周年优惠促销中，买 [魔戒](https://xuv.cc/out/mojie)送八戒余额，详细优惠信息如下：
-
-<ul>
-	<li>买魔戒￥69套餐，得流量750G，赠送八戒余额￥17元</li>
-	<li>买魔戒￥138套餐，得流量1660G，赠送八戒余额￥35元</li>
-	<li>买魔戒￥279套餐，得流量3600G，赠送八戒余额￥70元</li>
-	<li>买魔戒￥688套餐，得流量10240G，赠送八戒余额￥172元</li>
-</ul>
-
-无需优惠码，购买完发送工单申请即可。
+目前暂无优惠码，建议关注 [魔戒机场官网](https://47.242.128.61:8000/#/register?code=Rn2CpM4a) 获取最新信息。
 
 **温馨提示：任何服务均有跑路风险，请自行注意防范！**
 
