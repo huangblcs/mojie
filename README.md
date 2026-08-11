@@ -2,7 +2,7 @@
 
 下面是魔戒net官网最新地址：
 
-永久官网：[魔戒.com](https://xuv.cc/out/mojie)
+永久官网：[魔戒.com](https://mojie.app/#/register?code=Rn2CpM4a)
 
 地址1：[https://mojie.kim](https://mojie.app/#/register?code=Rn2CpM4a)
 
